@@ -8,7 +8,7 @@
 - 7 noun: annaual 
 - 8 noun: annaual
 - 9 noun: annaual
--   noun: italy they set you up using calandar on android   
+- on wake-up island  noun: italy they set you up using calandar on android   
 - 10anoun: 122112 vucub ixcaqu, nuhchuen, ztabnuh, ah-puch cerrados 
 - 10
 - 16
